@@ -1,1 +1,0 @@
-Urok odin
